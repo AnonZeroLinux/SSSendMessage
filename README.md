@@ -2,7 +2,7 @@
 
 
 # 사용법
-https://www.youtube.com/channel/UCZ_ppGCvgpMwkJPOrhv4_GA 
+https://youtu.be/AbTFNa4_dsg
 유튜브 영상 참고
 
 # 문의
